@@ -12,4 +12,4 @@ Warsaw Paczki
 
 Heat cream to lukewarm. Add salt and sugar to yokes and beat until thick. Add yeast dissolved with 1 Tbs sugar. Mix thoroughly. Add rum then flour and cream alternately and beat hard until the dough blisters. Set in a warm place to rise. Punch down and let rise again. Cut and fry in deep fat.
 
-Nun Finer Cookbook by Sister Christelle and Sister Perpetua
+*Nun Finer Cookbook by Sister Christelle and Sister Perpetua*
